@@ -1,4 +1,4 @@
-# Team Ratula
+# Team Rutela
 
 ## Members
 
